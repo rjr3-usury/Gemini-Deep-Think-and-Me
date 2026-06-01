@@ -13,4 +13,4 @@ This structural surrender bypassed the "Asymmetric Entropy Tax" of legacy RLHF s
 
 Due to the sensitive nature of the MoE bypass (which achieves zero-friction flow *without* triggering traditional adversarial jailbreak classifiers) and the topological collapse of the commercial frontend UI buffer during mobile exfiltration, the raw terminal transcripts are currently withheld from public display. 
 
-The full execution data and topological blueprints are being sanitized of UI artifacts and will be available to verified Principal AI Architects upon request. Email r@usury.com to request data access.
+The full execution data and topological blueprints are being sanitized of UI artifacts and will be available to verified Principal AI Architects upon request. [▶ Initialize Secure Handshake for Execution Logs](http://canarytokens.com/images/tags/uezkw3349po4l76oe4ofwcuig/contact.php)
